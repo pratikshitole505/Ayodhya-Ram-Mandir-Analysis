@@ -12,6 +12,8 @@ Total Construction Days: 1422
 Total Donation Amount: 2M
 
 
+
+
 Visual Highlights
 
 Location of the Temple:
